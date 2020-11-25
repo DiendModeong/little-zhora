@@ -1,1 +1,3 @@
-# MO LIAT APE LOH ? NYARI CODING GRATIS YA ?
+# Name Diend Modoeng
+# Region Manado, Indonesia
+# Nice to meet you!
